@@ -2,7 +2,7 @@
 
 Beyond my love for machine learning, I am also deeply intrigued by the revolutionary technology of blockchain. 🌐💎 I am actively expanding my knowledge in this area, eager to understand its potential applications and contribute to its development.
 
-Research is another realm that captivates me. 🔍🔬 I find joy in uncovering new insights and pushing the boundaries of knowledge. Exploring innovative ideas and working on exciting projects keeps me motivated and fuels my curiosity.
+Research is another realm that captivates me. 🔍🔬 Exploring innovative ideas and working on exciting projects keeps me motivated and fuels my curiosity.
 
 When I'm not diving into the realm of technology, you'll often find me lost in the world of music. 🎵🎶 Music brings me solace and inspiration, and I enjoy exploring various genres and discovering new artists.
 
