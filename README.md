@@ -1,4 +1,4 @@
-👋 Hello there! I'm Mayukhi, a passionate machine learning enthusiast and a technology aficionado currently pursuing a BTech in Information Technology. 🎓 In my 2nd year of studies, I'm immersing myself in the fascinating world of data and algorithms, exploring the limitless possibilities that machine learning offers. 🤖💡
+👋 Hello there! I'm Mayukhi, a passionate machine learning enthusiast and a technology aficionado currently pursuing a BTech in Information Technology. 🎓 I'm currently exploring the intriguing realm of data and algorithms, discovering the exciting possibilities that machine learning has to offer. 🤖💡
 
 Beyond my love for machine learning, I am also deeply intrigued by the revolutionary technology of blockchain. 🌐💎 I am actively expanding my knowledge in this area, eager to understand its potential applications and contribute to its development.
 
