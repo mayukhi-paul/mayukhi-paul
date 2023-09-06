@@ -4,7 +4,7 @@ Beyond my love for machine learning, I am also deeply intrigued by the revolutio
 
 Research is another realm that captivates me. 🔍🔬 Exploring innovative ideas and working on exciting projects keeps me motivated and fuels my curiosity.
 
-When I'm not diving into the realm of technology, you'll often find me lost in the world of music. 🎵🎶 Music brings me solace and inspiration, and I enjoy exploring various genres and discovering new artists.
+Apart from this you'll often find me lost in the world of music. 🎵🎶 Music brings me solace and inspiration, and I enjoy exploring various genres and discovering new artists.
 
 Join me on this exhilarating journey as we navigate the ever-evolving landscape of technology, explore the depths of machine learning, delve into the potential of blockchain, and seek new horizons through research. Let's connect and collaborate! 🚀🌟
 
