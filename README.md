@@ -1,8 +1,6 @@
 👋 Hello there! I'm Mayukhi, a passionate machine learning enthusiast currently pursuing a BTech in Information Technology. 🎓 I'm currently exploring the intriguing realm of data and algorithms, discovering the exciting possibilities that machine learning has to offer. 🤖💡
 
-Beyond my love for machine learning, I am also deeply intrigued by the revolutionary technology of blockchain. 🌐💎 I am actively expanding my knowledge in this area, eager to understand its potential applications and contribute to its development.
-
-Research is another realm that captivates me. 🔍🔬 Exploring innovative ideas and working on exciting projects keeps me motivated and fuels my curiosity.
+Beyond my love for machine learning, I am also deeply intrigued by the revolutionary technology of blockchain. 🌐💎 I am actively expanding my knowledge in this area, eager to understand its potential applications and contribute to its development. Exploring innovative ideas and working on exciting projects keeps me motivated and fuels my curiosity.
 
 Apart from this you'll often find me lost in the world of music. 🎵🎶 Music brings me solace and inspiration, and I enjoy exploring various genres and discovering new artists.
 
